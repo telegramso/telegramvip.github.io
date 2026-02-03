@@ -9,3 +9,9 @@ Telegram纸飞机电报从2025年8月起开始登陆注册时越来越多人遇�
 Telegram纸飞机电报注册登陆代注册购买账号，纸飞机代充高级版会员，代代回帐号，代登录帐号，纸飞机苹果手机IOS下载和收不到验证码短信解决：
 办理+qq：3924157244
 
+Telegram纸飞机电报下载安装登陆注册，购买成品号，代注册，收不到验证码的解决方法
+https://telegramso.github.io/download
+
+Telegram纸飞机电报使用指南
+怎么加好友，加群组，加频道，和解决双向好友私聊限制
+https://telegramso.github.io/sousuo
